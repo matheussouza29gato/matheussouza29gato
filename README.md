@@ -3,3 +3,5 @@
 💟eu namoro
 
 ⚫nigGa 
+
+🙌blessed
